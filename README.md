@@ -1,0 +1,2 @@
+# Enhancing_revenue_via-_lead-_qualification_for_hospitality_minds
+Enhancing revenue via lead qualification
